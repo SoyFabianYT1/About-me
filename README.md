@@ -12,7 +12,7 @@ I'm also learning:
 
 - C++
 - C
-- Go
+
 
 So... Don't expect Quality content here also
 I play roblox
