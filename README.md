@@ -11,9 +11,10 @@ I just know the basic languages like:
 I'm also learning:
 
 - C++
-- C
-
 
 So... Don't expect Quality content here also
 I play roblox
 Profile: https://www.roblox.com/users/1995079532/profile
+
+I Will Be more active WHEN i get a New com, because RIGHT
+Now i'm doing all of this from memory and un My cellphone
