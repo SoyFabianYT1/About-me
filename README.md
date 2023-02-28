@@ -16,5 +16,5 @@ So... Don't expect Quality content here also
 I play roblox
 Profile: https://www.roblox.com/users/1995079532/profile
 
-I Will Be more active WHEN i get a New com, because RIGHT
-Now i'm doing all of this from memory and un My cellphone
+I will be more active when i get a new computer, because right
+Now i'm doing all of this from memory and on my cellphone
